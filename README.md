@@ -1,0 +1,2 @@
+# WZNotes
+WZ笔记
