@@ -17,7 +17,7 @@ hero:
   actions:
     - theme: brand
       text: 查看网赚笔记
-      link: /order/study_guide
+      link: /order/网赚指南
 
 features:
   - icon: 💡
