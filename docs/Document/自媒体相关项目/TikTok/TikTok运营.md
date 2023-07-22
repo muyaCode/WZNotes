@@ -2,6 +2,8 @@
 
 全网最全TikTok知识库：<https://flashexpress.feishu.cn/docs/doccnzKqk3Bf9r3IZPRkRAfryHf>
 
+[TIKTOK手机下载、还原、安装、发视频、全套 - 知乎 (zhihu.com)](https://www.zhihu.com/zvideo/1608605386294091776)
+
 知乎话题《Tiktok跨境电商》：<https://www.zhihu.com/topic/24663618/hot>
 
 - tiktok下载注册

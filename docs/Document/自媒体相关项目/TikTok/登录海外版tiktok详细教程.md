@@ -1,5 +1,7 @@
 # 登录海外版tiktok详细教程
 
+[TIKTOK手机下载、还原、安装、发视频、全套 - 知乎 (zhihu.com)](https://www.zhihu.com/zvideo/1608605386294091776)
+
 怎么下载注册tiktok？
 
 一、苹果手机(iPhone6型号以上，内存在16GB以上，任何版本都行)

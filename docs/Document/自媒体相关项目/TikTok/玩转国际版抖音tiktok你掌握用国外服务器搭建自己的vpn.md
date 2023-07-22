@@ -1,5 +1,7 @@
 # 利用海外服务器搭建自己私人VPN
 
+[TIKTOK手机下载、还原、安装、发视频、全套 - 知乎 (zhihu.com)](https://www.zhihu.com/zvideo/1608605386294091776)
+
 第一步：你需要有一台国外的服务器，或者香港服务器也可以；云服务平台有很多，如果只是单纯的搭建VPN，可以买便宜的服务器。
 
 海外抖音tiktok服务器哪家好（tiktok VPS服务器搭建商家推荐）：<https://www.cnbanwagong.com/tiktok221212.html>
